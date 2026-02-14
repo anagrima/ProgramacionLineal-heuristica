@@ -1,2 +1,2 @@
 # Autoras
-Ana Grima Vázquez de Prafa y Alejandra de los Santos Blanco
+Ana Grima Vázquez de Prada y Alejandra de los Santos Blanco
